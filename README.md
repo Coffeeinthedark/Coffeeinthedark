@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any small scale projects that could help me build expereince
 - 📫 How to reach me at CollaredCorso@outlook.com
 - 😄 Pronouns: Genderfluid
-- ⚡ Fun fact: I do tend to hyperfixate on new things, also im a furry🤣
+- ⚡ Fun fact: I do tend to hyperfixate on new things😊
 
 <!---
 Coffeeinthedark/Coffeeinthedark is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
